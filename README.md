@@ -174,5 +174,5 @@ seeking wildlife and adventure experiences.
 
 =====================================
 Project by: [Sadiya Prabin]
-Contact: [sadiya310753@gmail.com]
+Email: [sadiya310753@gmail.com]
 GitHub: [sadiya310]
